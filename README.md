@@ -1,1 +1,1 @@
-# Community-connect
+# Community Connect
